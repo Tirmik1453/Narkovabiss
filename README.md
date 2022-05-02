@@ -1,0 +1,2 @@
+# Narkovabiss
+Açıl susam açıl
